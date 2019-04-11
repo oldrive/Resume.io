@@ -6,7 +6,7 @@
 
 github:https://github.com/oldrive
 
-QQ:787121369@qq.com
+QQ:787121369
 
 Tel:1579795***3（做个样子，保密先）
 

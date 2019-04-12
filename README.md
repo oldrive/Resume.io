@@ -2,7 +2,7 @@
 
 这是一位不愿透露姓名的靓仔的介绍页，目前正在建造中~
 
-博主：[oldrive](https://oldrive.github.io/)
+博主：[一位不愿透露姓名的靓仔](https://oldrive.github.io/)
 
 [github](https://github.com/oldrive):https://github.com/oldrive
 

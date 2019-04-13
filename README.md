@@ -4,7 +4,7 @@
 
 博主：[靓仔小馒头](https://oldrive.github.io/)
 
-github：[oldrive](https://github.com/oldrive):https://github.com/oldrive)
+github：[oldrive](https://github.com/oldrive)
 
 QQ:787121369
 

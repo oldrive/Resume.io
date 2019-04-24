@@ -8,7 +8,7 @@ github：[oldrive](https://github.com/oldrive)
 
 QQ:787121369
 
-Tel:1579795***3（做个样子，保密先）
+Tel:15********3（做个样子，保密先）
 
 B站ID:[不再up的up主](https://space.bilibili.com/105358289?from=search&seid=11554643331021285882)
 
